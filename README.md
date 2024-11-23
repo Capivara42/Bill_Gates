@@ -11,3 +11,13 @@ Gates foi um visionário ao apostar que o computador pessoal seria um item indis
 3 Filantropia:
 Em 2000, Gates deixou a posição de CEO da Microsoft para se dedicar mais à Bill & Melinda Gates Foundation, uma das maiores organizações filantrópicas do mundo. A fundação atua em áreas como saúde global, combate à pobreza e educação.
 
+Curiosidades
+Bill Gates é um dos homens mais ricos do mundo, mas já anunciou que pretende doar grande parte de sua fortuna para a caridade.
+Ele escreveu dois livros: The Road Ahead (1995) e Business @ the Speed of Thought (1999).
+Gates é conhecido por seu hábito de leitura, afirmando ler cerca de 50 livros por ano.
+
+Frases Marcantes
+"O sucesso é um péssimo professor. Ele seduz as pessoas inteligentes a pensar que não podem perder."
+"Sempre escolho uma pessoa preguiçosa para fazer um trabalho difícil, porque ela encontrará uma maneira fácil de fazê-lo."
+
+Acadêmicos: Alexandre; Hemerson.
